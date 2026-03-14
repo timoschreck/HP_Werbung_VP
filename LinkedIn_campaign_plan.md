@@ -14,6 +14,10 @@ Die Ansprache sollte fachlich fundiert und praxisnah sein – Energieberater leg
 
 Diese erste Ankündigung stellt Homeplus vor und betont den Mehrwert für potenzielle Partner. Sie greift die Bedeutung von Energieberatern für die Energiewende auf und unterstreicht, dass Vertrauen und der Nachweis eines klaren Mehrwerts entscheidend sind【51970157203559†L44-L51】【51970157203559†L57-L63】.
 
+![Homeplus-Berater Einf\u00fchrung](images/berater1.jpg)
+
+
+
 ### 25. März 2026, 10:00 Uhr
 **Titel:** Erfolgsgeschichte & Vorteile für Partner  
 **Inhalt:**  
@@ -21,12 +25,20 @@ Diese erste Ankündigung stellt Homeplus vor und betont den Mehrwert für potenz
 
 Dieses Posting nutzt eine Fallstudie, um konkrete Erfolge zu zeigen, und hebt die Unterstützung für Partner hervor – ein wichtiger Punkt bei der Ansprache, da Energieberater lösungsorientierte und effiziente Angebote schätzen【51970157203559†L57-L63】.
 
+![Homeplus-Berater Erfolgsfall](images/berater2.jpg)
+
+
+
 ### 1. April 2026, 10:00 Uhr
 **Titel:** Einladung zum Webinar & Netzwerkaufbau  
 **Inhalt:**  
 *Webinar‑Einladung: Am 15. April 2026 um 14:00 Uhr präsentieren wir in einem kostenlosen Webinar unsere neuen Energieeffizienz‑Lösungen und zeigen, wie Sie als Partner profitieren können. Melden Sie sich jetzt an und erfahren Sie, wie Homeplus Ihre Beratungsleistung erweitert. Webinare und Fachartikel auf LinkedIn sind ideale Kanäle, um Energieberater zu erreichen【51970157203559†L80-L89】【51970157203559†L120-L123】. Werden Sie Teil unseres Netzwerks – wir freuen uns auf Sie!*  
 
-In diesem Posting wird ein konkretes Webinar angekündigt, das die Expertise von Homeplus demonstriert und potenziellen Partnern einen tieferen Einblick ermöglicht. Es baut auf dem Tipp auf, durch Webinare und Social Media Vertrauen aufzubauen und Expertise zu zeigen【51970157203559†L80-L89】.  
+In diesem Posting wird ein konkretes Webinar angekündigt, das die Expertise von Homeplus demonstriert und potenziellen Partnern einen tieferen Einblick 
+
+![Homeplus-Berater Webinar](images/berater3.jpg)
+
+ermöglicht. Es baut auf dem Tipp auf, durch Webinare und Social Media Vertrauen aufzubauen und Expertise zu zeigen【51970157203559†L80-L89】.  
 
 ---
 
